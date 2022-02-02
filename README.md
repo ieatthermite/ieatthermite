@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ieatthermite
 - 👀 I’m interested in things n such
 - 🌱 I’m currently learning whether fate is real
-- 💞️ I’m looking to collaborate on idk quantum is cool, right?
+- 💞️ I’m looking to collaborate on idk maybe quantum or liberty or something
 - 📫 How to reach me ieatthermite@protonmail.com
 
 <!---
